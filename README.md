@@ -8,7 +8,6 @@ Warning
 While using these hacks, there is a chance you can get banned. Use these at your own risk. I am not responsible for if you get in any trouble while using these hacks.
 
 DO NOT STEAL MY WORK!
-I am in the process of taking legal action against someone stealing my code and posting it as their own. They modified my code as well as deleted all credit towards me. Do not steal my work as I will take legal actions.
 
 Blooket Info
 🌟PLEASE STAR THIS PROJECT🌟
